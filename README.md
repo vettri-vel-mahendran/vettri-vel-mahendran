@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vettri-vel-mahendran
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in Both Men And Women Coder
+- 🌱 I’m currently learning iOS App Developement 
+- 💞️ I’m looking to collaborate on ...Working, Friending 
 - 📫 How to reach me ... https://www.instagram.com/vetri_k__victory/ 
 
 <!---
